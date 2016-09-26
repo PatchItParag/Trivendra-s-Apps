@@ -1,1 +1,0 @@
-# Trivendra-s-Apps
